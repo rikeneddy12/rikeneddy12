@@ -8,7 +8,7 @@
 [![Instagram](https://img.shields.io/badge/Instagram-%23E4405F.svg?logo=Instagram&logoColor=white)](https://instagram.com/rikeneddy_antony) 
 
  Commit your way to the Lord, trust in him, and he will act.
- Psalm 37:5
+ Psalm 37:5 📖
 
  
 ---
